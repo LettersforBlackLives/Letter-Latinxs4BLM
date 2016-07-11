@@ -41,3 +41,27 @@ Con amor y esperanza,
 Sus hijas, hijos, sobrinos, sobrinas, nietos y nietas
 
 #### En solidaridad y con gratitud a nuestros amigos/familia de la comunidad asiática que [iniciaron esta campaña de cartas](https://lettersforblacklives.com/dear-mom-dad-uncle-auntie-black-lives-matter-to-us-too-7ca577d59f4c#.wp6se5it3).
+
+Autores:
+
+- [Nicole Sanchez](https://medium.com/u/b3349e3e2f14)
+
+- [Bianca Escalante](https://medium.com/u/9fb8e40b40d8)
+
+- [Karla L. Monterroso](https://medium.com/u/ca175a408c17) + [CODE2040](https://medium.com/u/c12eaf494b3)
+
+- [Juan Pablo Buriticá](https://medium.com/u/89f68f70d05b)
+
+- [Jennifer Arguello](https://medium.com/u/1fd6298c21b2)
+
+- [Alberto Roca PhD](https://medium.com/u/45373a17741f)
+
+- CJ Joulain
+
+- [unfilosofo](https://medium.com/u/c0de220db3cf)
+
+- [Ingrid Vasquez](https://medium.com/u/3df07951af)
+
+- Angie Jaime
+
+
