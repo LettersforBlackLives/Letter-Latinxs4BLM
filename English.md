@@ -6,7 +6,7 @@ Querida Familia:
 
 We need to talk.
 
-We want you to understand why Black lives are so important to us and hope you will join is in support of the Black Lives Matter movement.
+We want you to understand why Black lives are so important to us and hope you will join us in support of the Black Lives Matter movement.
 
 The peace and security, opportunities and joy we seek as Latinxs are intertwined with the Black community. The struggles we are facing overlap with theirs quite literally, and it’s time for our community to be vocal in support of what is happening.
 
